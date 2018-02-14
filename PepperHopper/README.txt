@@ -1,0 +1,1 @@
+Pepper er kul og hopper.
